@@ -1,3 +1,3 @@
 # githud28feb
 
-edhi mortham project gurinchi chepthundi
+edhi mortham main project loki add chesthunna
